@@ -23,4 +23,4 @@ My goal is to master programming and continuously improve my technical skills. I
 - 😄 Pronouns: She/Her
 
 
-![geralt-digitization-5194814_640](https://github.com/user-attachments/assets/8f99b150-c9d0-4c49-b858-95292967d838)
+![Coding](https://cdn.pixabay.com/photo/2020/05/20/05/44/digitization-5194814_1280.jpg)
